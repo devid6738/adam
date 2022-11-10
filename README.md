@@ -1,0 +1,2 @@
+# adam
+Ban instagram 
